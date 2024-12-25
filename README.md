@@ -25,6 +25,6 @@
 
 新中原三合一香港六合彩完美信用盘程序源码,澳门六合彩盘口源码搭建。
 
-版权所有Copyright © 2017-2025 by 老李[六合彩信用盘搭建](https://www.tuku325.cc/) ([https://www.fastadmin.net](https://www.tuku325.cc/))
+版权所有Copyright © 2017-2025 by 老李[六合彩信用盘搭建](https://www.tuku325.cc/) ([tuku325](https://www.tuku325.cc/))
 
 All rights reserved。
